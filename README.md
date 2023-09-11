@@ -1,0 +1,1 @@
+# 9-sinif-fizik-multi-soru-bankasi-32
